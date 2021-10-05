@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Oscarsailing
+- 👀 I’m interested in UX, UI, Interaction design, User Research & Service Design 
+- 💞️ I’m looking to collaborate on Design Systems
+- 📫 How to reach me https://www.oscarmayr.com
